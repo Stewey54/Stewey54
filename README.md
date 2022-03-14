@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Stewey54
+- 👀 I’m interested in 3D Printing
+- 🌱 I’m currently learning Fusion360
+- 💞️ I’m not looking to collaborate on anything yet but will be in the future
+- 📫 How to reach me Vulcan1600@gmail.com 
